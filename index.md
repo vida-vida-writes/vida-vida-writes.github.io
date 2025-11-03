@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+Existence v éře antropocénu je náročná.
 
-Maybe say a some things about yourself.
+Jsem jen malá, nicotná část obrovského stroje
 
-Or maybe what you plan to blog about.
+Jediné, co mi zbývá, je můj hněv
